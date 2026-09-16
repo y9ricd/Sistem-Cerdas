@@ -1,1 +1,1 @@
-# Sistem-Cerdas
+# Sistem Cerdas
